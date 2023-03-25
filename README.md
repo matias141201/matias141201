@@ -1,6 +1,6 @@
 ### Hi there, my name is Matias Rodriguez Ovejero 👋
 
-### I have been passionate about technology since I was a child, especially about Mobile technology in which I want to continue training, improve and learn every day.
+### I have been passionate about technology since I was a child, especially about Mobile technology in which I want to continue training, improve and learning every day.
 
 
 
